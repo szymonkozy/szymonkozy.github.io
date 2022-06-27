@@ -1,1 +1,0 @@
-# szymonkozy.github.io
